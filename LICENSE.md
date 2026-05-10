@@ -1,4 +1,4 @@
-
+Enhance Adobe Photoshop for macOS with Adobe Photoshop for macOS ultimate Action - batch processing and asset management, the #1 action. Includes batch processing and asset
 
 
 
